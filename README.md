@@ -30,9 +30,7 @@ To resolve this issue:
 
 Ronnie Sheer 
                             
-
-
-                            
+check this                         
 
 Check out my other courses on [LinkedIn Learning](https://www.linkedin.com/learning/instructors/ronnie-sheer).
 
